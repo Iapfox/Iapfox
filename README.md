@@ -1,3 +1,5 @@
 
 read the rentry its important!!
-https://user-images.githubusercontent.com/111625289/194960196-edaa2290-bb15-4fb6-81d7-146e5f1113ed.mov
+
+https://user-images.githubusercontent.com/111625289/194961320-f8a089ee-2dab-471f-b2c8-596f1718d1fe.mov
+
