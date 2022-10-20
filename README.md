@@ -4,9 +4,7 @@ https://rentry.co/dehumanizing
 https://rentry.co/vargskeIethor
 
 read :3 i am a nervous person pls dont
-
 interact with me if i dont know u and
-
 if im not with my friends .. thank u
 
 
