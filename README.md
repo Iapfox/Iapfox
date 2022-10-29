@@ -1,5 +1,4 @@
 
-https://rentry.co/dehumanizing
 
 https://rentry.co/vargskeIethor
 
